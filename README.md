@@ -1,4 +1,4 @@
-## Olá, 
+## Olá, boas vindas 
 
 Meu nome é Jaime, e sou o profewsor de Tecnologia do 1º A
 
